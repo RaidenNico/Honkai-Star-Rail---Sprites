@@ -1,1 +1,1 @@
-# Honkai-Star-Rail---Sprites
+# Honkai: Star Rail - Sprites
